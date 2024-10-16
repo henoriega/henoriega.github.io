@@ -4,3 +4,5 @@ certificado que debo solicitar:
 =========================== next talks ===============================================
 - Platica, Sem. Universidad de Pamplona
 - Platica, Cosmos
+
+- Cosmos: https://fb.watch/vfD6qLQ5Ds/ 
